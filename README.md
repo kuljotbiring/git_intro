@@ -1,2 +1,1 @@
 Kuljot Biring
-1
